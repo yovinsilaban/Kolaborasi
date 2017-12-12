@@ -1,2 +1,2 @@
 # Kolaborasi
-Botang (Bowo Tari Amggun)
+Botang (Bowo Tari Anggun)
